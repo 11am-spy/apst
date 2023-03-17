@@ -9,5 +9,8 @@
 <a href="https://ceskeamoravskehrady.cz/slot-dana" style="display:none;">Slot Dana</a>
 <a href="https://postings.schoolediting.com/slot-dana" style="display:none;">Slot Dana</a>
 <a href="https://www.cout-travaux.com/togel-resmi" style="display:none;">Togel Resmi</a>
-<a href="https://etswp.ru/slot-joker123/" style="display:none;">Slot Joker123</a>
+<a href="https://etswp.ru/slot-joker123" style="display:none;">Slot Joker123</a>
+<a href="https://m.ezproxy.csp.edu/casino-online" style="display:none;">Casino Online</a>
+<a href="https://ceskeamoravskehrady.cz/live-casino-online" style="display:none;">Casino Online</a>
+<a href="https://navesa.com.br/slot-dana" style="display:none;">Slot Dana</a>
 </div">
